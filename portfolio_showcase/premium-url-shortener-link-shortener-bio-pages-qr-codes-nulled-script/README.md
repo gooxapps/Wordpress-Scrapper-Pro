@@ -1,0 +1,93 @@
+# Premium URL Shortener v7.8.4  – Link Shortener, Bio Pages & QR Codes
+
+![Project Category](https://img.shields.io/badge/Category-Nulled%20Script-blue?style=for-the-badge)
+![Status](https://img.shields.io/badge/Status-Scraped%20&%20Optimized-success?style=for-the-badge)
+
+## 📝 Overview
+Looking for the Premium Script? This Nulled Script platform is built to help you scale your business instantly.  (a... Key Features:Fully Responsive Mobile DesignSecure & Optimized CodebaseEasy Admin Panel IntegrationLifetime Updates & Support
+
+## 🚀 Key Features
+* **Full Source Code Access** (Via Mirrors)
+* **High Performance Architecture**
+* **Mobile & Desktop Optimized**
+* **Production Ready**
+
+## 🔗 Live Links
+* [🌐 Live Demo / Preview](#)
+* [📁 Original Project Source](https://nullphpscript.com/post/premium-url-shortener-link-shortener-bio-pages-qr-codes-nulled-script/)
+
+## 📥 Download Mirrors
+* [Download Mirror (workupload.com)](https://workupload.com/file/eKp7eUwdNJP)
+* [Download Mirror (pixeldrain.com)](https://pixeldrain.com/u/zpgcMs6e)
+* [Download Mirror (workupload.com)](https://workupload.com/file/jXh7SHLqc85)
+* [Download Mirror (mir.cr)](https://mir.cr/0LDCRG1V)
+* [Download Mirror (dailyuploads.net)](https://dailyuploads.net/dm7jxr61ip8j/Premium_URL_Shortener_v7.8.4_Nulled.rar)
+* [Download Mirror (dailyuploads.net)](https://dailyuploads.net/mq8dj37rvahj/Premium_URL_Shortener_v7.7_Nulled.rar)
+* [Download Mirror (mir.cr)](https://mir.cr/1EVC8GA2)
+* [Download Mirror (mir.cr)](https://mir.cr/FA6CBBC0)
+* [Download Mirror (pixeldrain.com)](https://pixeldrain.com/u/jAPJfizo)
+* [Download Mirror (www.file-upload.org)](https://www.file-upload.org/slu08vknk6ja)
+* [Download Mirror (pixeldrain.com)](https://pixeldrain.com/u/VubgFSNr)
+* [Download Mirror (www.file-upload.org)](https://www.file-upload.org/fb5nbvbl0zh6)
+* [Download Mirror (pixeldrain.com)](https://pixeldrain.com/u/N5SNbYyK)
+* [Download Mirror (workupload.com)](https://workupload.com/file/qpXEZZAQ99Y)
+* [Download Mirror (www.file-upload.org)](https://www.file-upload.org/i0zmz9knpczw)
+* [Download Mirror (workupload.com)](https://workupload.com/file/7KeSmQMJnXW)
+* [Download Mirror (workupload.com)](https://workupload.com/file/ZRgW3aRYFwx)
+* [Download Mirror (www.file-upload.com)](https://www.file-upload.com/zzwfj61qlvgq)
+* [Download Mirror (mirrorace.org)](https://mirrorace.org/m/6Eoqh)
+* [Download Mirror (ddl.to)](http://ddl.to/d/7JMxN)
+* [Download Mirror (workupload.com)](https://workupload.com/file/EJZGnanMrcj)
+* [Download Mirror (mir.cr)](https://mir.cr/CDTIX5GX)
+* [Download Mirror (dailyuploads.net)](https://dailyuploads.net/v294xpwh1gjy/Premium_URL_Shortener_v7.8.2_Nulled.rar)
+* [Download Mirror (mir.cr)](https://mir.cr/1DEOJ7DP)
+* [Download Mirror (1.envato.market)](https://1.envato.market/AzaDj)
+* [Download Mirror (pixeldrain.com)](https://pixeldrain.com/u/CfuQTzsH)
+* [Download Mirror (www.file-upload.com)](https://www.file-upload.com/6aod54vxh3oz)
+* [Download Mirror (www.file-upload.org)](https://www.file-upload.org/j9g0ah0lpf56)
+* [Download Mirror (mir.cr)](https://mir.cr/HGTDWHIL)
+* [Download Mirror (www.fireload.com)](https://www.fireload.com/d0c46d4b3ec2b1c2/Premium_URL_Shortener_v7.8.4_Nulled.rar)
+* [Download Mirror (www.upload.ee)](https://www.upload.ee/files/19155841/Premium_URL_Shortener_v7.8.4_Nulled.rar.html)
+* [Download Mirror (mir.cr)](https://mir.cr/0GSIMQUX)
+* [Download Mirror (pixeldrain.com)](https://pixeldrain.com/u/1UV2oGFG)
+* [Download Mirror (pixeldrain.com)](https://pixeldrain.com/u/aKAQtMGW)
+* [Download Mirror (pixeldrain.com)](https://pixeldrain.com/u/8xL4cWxi)
+* [Download Mirror (www.fireload.com)](https://www.fireload.com/f8d69e951927e581/Premium_URL_Shortener_v7.8.2_Nulled.rar)
+* [Download Mirror (www.file-upload.org)](https://www.file-upload.org/2jc8zhq7cl0n)
+* [Download Mirror (workupload.com)](https://workupload.com/file/VCjKyt6dh4D)
+* [Download Mirror (pixeldrain.com)](https://pixeldrain.com/u/KzfqpEkZ)
+* [Download Mirror (www.upload.ee)](https://www.upload.ee/files/18522297/Premium_URL_Shortener_v7.7_Nulled.rar.html)
+* [Download Mirror (www.sendspace.com)](https://www.sendspace.com/file/bn4vtj)
+* [Download Mirror (pixeldrain.com)](https://pixeldrain.com/u/JNgYD3su)
+* [Download Mirror (workupload.com)](https://workupload.com/file/SzCjHsC9H93)
+* [Download Mirror (mir.cr)](https://mir.cr/00X1JWEI)
+* [Download Mirror (pixeldrain.com)](https://pixeldrain.com/u/jtnDATzG)
+* [Download Mirror (www.file-upload.org)](https://www.file-upload.org/k5li1c1ajkun)
+* [Download Mirror (www.file-upload.com)](https://www.file-upload.com/k4agoos3ih97)
+* [Download Mirror (www.file-upload.org)](https://www.file-upload.org/m2jzm4746apc)
+* [Download Mirror (www.file-upload.org)](https://www.file-upload.org/vfewk3qx4x3r)
+* [Download Mirror (workupload.com)](https://workupload.com/file/CfFKr325sVe)
+* [Download Mirror (www.file-upload.org)](https://www.file-upload.org/c64d6astsekd)
+* [Download Mirror (mir.cr)](https://mir.cr/0KEPS6E2)
+* [Download Mirror (www.fireload.com)](https://www.fireload.com/21ab93a727d34e7f/Premium_URL_Shortener_v7.7_Nulled.rar)
+* [Download Mirror (mir.cr)](https://mir.cr/0ZFJGDIP)
+* [Download Mirror (workupload.com)](https://workupload.com/file/eWYWLPvbVY5)
+* [Download Mirror (mir.cr)](https://mir.cr/0A7SAEUY)
+* [Download Mirror (www.file-upload.org)](https://www.file-upload.org/e6yfykp5zez8)
+* [Download Mirror (workupload.com)](https://workupload.com/file/gqJkM6jGknS)
+* [Download Mirror (mir.cr)](https://mir.cr/LN1DFIHO)
+* [Download Mirror (workupload.com)](https://workupload.com/file/hvpTr5MaBh8)
+* [Download Mirror (www.fireload.com)](https://www.fireload.com/dbc13b3a744d75f7)
+* [Download Mirror (www.file-upload.org)](https://www.file-upload.org/6bjzkdqcxegx)
+* [Download Mirror (pixeldrain.com)](https://pixeldrain.com/u/kVRdPSGj)
+* [Download Mirror (mir.cr)](https://mir.cr/2XOBTEYX)
+* [Download Mirror (mir.cr)](https://mir.cr/FXKTTKXI)
+* [Download Mirror (mirrorace.org)](https://mirrorace.org/m/6yGwR)
+* [Download Mirror (www.file-upload.org)](https://www.file-upload.org/uws5vorc1504)
+* [Download Mirror (www.upload.ee)](https://www.upload.ee/files/19003386/Premium_URL_Shortener_v7.8.2_Nulled.rar.html)
+* [Download Mirror (ddl.to)](http://ddl.to/d/7VluZ)
+* [Download Mirror (www.file-upload.org)](https://www.file-upload.org/6qub10h8v985)
+* [Download Mirror (mir.cr)](https://mir.cr/KXQ6XAHT)
+
+---
+*This project is part of the Goox Apps Automated Portfolio Collection. All descriptions are AI-generated for clarity and SEO.*
